@@ -1,4 +1,4 @@
-### Hi there! - I'm a **multidiscipinary designer** learning to code on the side🧑🏻‍💻
+### Hi there! - I'm a **multidisciplinary designer** learning to code on the side🧑🏻‍💻
 
 Feel free to browse my repositories- I'm always open for feedback!
 
